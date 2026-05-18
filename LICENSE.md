@@ -1,4 +1,4 @@
-# 
+# Secret Vegas Pro for PC addons is the best Vegas Pro for PC addons with plugin-support and slow-motion. Safe, reliable, and optimized for maximum performance.
 
 
 
